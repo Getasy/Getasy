@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Getasy
+- 👋 Hi, I’m @GEt$Y
 - 👀 I’m a real estate software
 - 🌱 I’m comming soon...
 - 📫 How to reach me getasy.in@gmail.com || anshsingh2529@gmail.com
